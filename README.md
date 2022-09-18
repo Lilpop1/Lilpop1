@@ -1,4 +1,4 @@
-Hey ! Lilpop here, im a python developper and i do many nitro checker, generator, or sniper !
+Hey ! Haykuo here, im a python developper and i do many nitro checker, generator, or sniper !
 
 - ❓ How to talk with me ?
 -     > Just go to one of my rep. and start a discussion
